@@ -32,7 +32,7 @@ Department of Sociology and Social Research
 
 ---
 
-### Beijing Normal University - Hong Kong Baptist University United International College / B.A. in Public Relations and Advertising (First Class Honours)
+### Beijing Normal - Hong Kong Baptist University / B.A. in Public Relations and Advertising (First Class Honours)
 *09.2008 - 11.2012, Zhuhai, China*
 
 Degree Awarded by Hong Kong Baptist University  
