@@ -1,10 +1,3 @@
-
-<style>
-  h3 {
-    margin-bottom: 0px;
-  }
-</style>
-
 ---
 permalink: /
 title: "Résumé"
