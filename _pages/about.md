@@ -16,8 +16,7 @@ Le Centre de Recherche sur les Inégalités Sociales (CRIS)
 
 ### University of Milan-Bicocca / Ph.D in Urban Studies (Dual PhD degree)
 Department of Sociology and Social Research  
-*11.2019 - 12.2024, Milan, Italy*
-
+*11.2019 - 12.2024, Milan, Italy*  
 **Thesis:** Policies, Practices, and Imaginaries: Urban Regeneration in China - Chengdu as A Case, co-supervised by Marianna d'Ovidio and Sukriti Issar
 
 ---
