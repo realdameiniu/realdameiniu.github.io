@@ -6,10 +6,6 @@ redirect_from:
   - /about/
   - /about.html
 ---
-
-
-## Education
-
 ### Sciences Po / Ph.D. in Sociology (Dual PhD degree)
 Le Centre de Recherche sur les Inégalités Sociales (CRIS)  
 *01.2020 - 12.2024, Paris, France*
