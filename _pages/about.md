@@ -39,11 +39,11 @@ Language of Instruction: English
 
 ---
 
-### Shanghai Academy of Social Sciences / Visiting Researcher
+### Shanghai Academy of Social Sciences / Visiting Scholar
 Institute of Urban and Demographic Studies  
 *03.2021 - 04.2022, Shanghai, China*
 
-### Renmin University of China / Visiting Graduate Student
+### Renmin University of China / Visiting Student
 Urban and Rural Planning, School of Public Administration and Policy  
 *02.2019 - 06.2019, Beijing, China*
 
